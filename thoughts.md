@@ -1,0 +1,3 @@
+-Preparing by reading the session overview before class helps tremendously in staying up to pace with the lesson  
+-Reviewing the entire session after class within 24 hours is essential before starting your homework  
+-Each lesson needs to experienced three times, before class, during class, and after 
