@@ -5,3 +5,5 @@
 ### Stratagies for Mod 0  
 -start tracking time spent on problems
 -organize my schedule, try different approaches to studying and reviewing  
+### Shoutouts!  
+-Eric Weissman, Elliot Olbright, Antonio King
