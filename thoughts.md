@@ -9,3 +9,4 @@
 -Eric Weissman, Elliot Olbright, Antonio King
 ### New thoughts  
 -wow! this is fun!
+-need to start mod 1 prework!
