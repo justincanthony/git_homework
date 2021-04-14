@@ -7,3 +7,5 @@
 -organize my schedule, try different approaches to studying and reviewing  
 ### Shoutouts!  
 -Eric Weissman, Elliot Olbright, Antonio King
+### New thoughts  
+-wow! this is fun!
